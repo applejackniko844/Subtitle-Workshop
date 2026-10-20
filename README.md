@@ -217,4 +217,4 @@ Subtitle Workshop is available as a full free version with all features and upda
 Start your Subtitle Workshop journey today and experience the best in subtitle editing! Download now!
 
 ---
-**Last updated:** 2026-10-20 11:12:28 UTC
+**Last updated:** 2026-10-20 16:37:14 UTC
